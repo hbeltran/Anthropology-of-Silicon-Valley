@@ -60,6 +60,8 @@ Urry, John. 2007. Mobilities. Malden: Politity Press.
 
 **Thu:**
 * Spitulnik, Debra. 2002. Mobile Machines and Fluid Audiences: Rethinking Reception through Zambian Radio Culture. In Media Worlds: Anthropology on New Terrain, Ginsburg, Faye D., Lila Abu-Lubhod, and Brian Larkin, eds. Berkeley: University of California Press. Pg. 337-354.
+*Related Readings:*
+
 
 ###Week 6: 2/20 – 2/26
 **Tu:**  
